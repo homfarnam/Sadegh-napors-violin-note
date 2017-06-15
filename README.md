@@ -7,4 +7,3 @@ Co-Producer : Khat Production
 
 Violin And Cello Note : Farnam Homayounfar
 
-بزودی نت این قطعه کامل تر خواهد شد.
